@@ -1,5 +1,5 @@
 JavaScript Developer 
-Trabalho com desenvolvimento Web há 2 anos 
+Trabalho com desenvolvimento Web há 4 anos 
 
 Principais skills: 
 
